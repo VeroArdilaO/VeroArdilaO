@@ -1,6 +1,4 @@
-### Hi there, Welcome to my space, I am Vero a dreamer who loves to learn everyday, thank you for pass here👋
-
-**VeroArdilaO/VeroArdilaO** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### Hi there, Welcome to my space, I am ✨ Vero Ardila ✨ a dreamer who loves to learn everyday, thank you for pass here👋
 
 Here are some ideas to share with you:
 
