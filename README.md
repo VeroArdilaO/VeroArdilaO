@@ -1,4 +1,4 @@
-### Hi there, Welcome to my space, I am ✨ Vero Ardila ✨ a dreamer who loves to learn everyday, thank you for pass here👋
+### Hi there, Welcome to my space, I am ✨ Vero Ardila ✨ a dreamer who loves to learn everyday, thank you to pass here👋
 
 Here are some ideas to share with you:
 
