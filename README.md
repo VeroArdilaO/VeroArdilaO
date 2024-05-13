@@ -2,9 +2,8 @@
 
 Here are some ideas to share with you:
 
-- 🔭 I’m currently working on CreateMe
-- 🌱 I’m currently learning React
-- 👯 I’m looking to collaborate on independent projects
-- 🤔 I’m looking for help with logic exercises
+- 🔭 I’m currently working on YR
+- 🌱 I’m currently learning QA Automation
+- 🤔 I’m looking to improve my logic skills
 - 📫 How to reach me: https://www.linkedin.com/in/veronica-ardila-267461a3/
 - 😄 Pronouns: She/Her.
